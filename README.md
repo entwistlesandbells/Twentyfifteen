@@ -1,2 +1,0 @@
-# Twentyfifteen
-brand hide bags 
